@@ -40,4 +40,4 @@
 
 •  _[Certificate link](https://gb.ru/certificates/1604003)_  ✔️
 
-•  _[Certificate link](https://gb.ru/streams/29978/feedbacks/new)_  ✔️
+•  _[Certificate link](https://gb.ru/certificates/1397881)_  ✔️
