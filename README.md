@@ -24,9 +24,9 @@
 
 ----------
 
-<!-- ### [](https://github.com/gitSaiev/GeekBrains#----database-mortar_board)_Database_  🎓
+### [](https://github.com/gitSaiev/GeekBrains#----database-mortar_board)_Database_  🎓
 
-•  _[Certificate link]()_  ✔️ -->
+•  _[Certificate link](https://gb.ru/certificates/1829075)_  ✔️
 
 ----------
 
